@@ -2,4 +2,4 @@
 
 ## Game developers. Join us
 
-### Our Discord: https://discord.gg/naJApnzt
+### Our Discord: https://discord.gg/y2446wb6
